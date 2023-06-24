@@ -25,6 +25,15 @@
  
  ### I love to write a big code and debug it 
 
+
+
+-----------------------------------------------------------------------------------------------------------------------------------
+
+
+![ai-generated-7724592_1280](https://github.com/7amok4a/7amok4a/assets/123641786/51752977-0b1a-4d97-adef-528015e0aae8)
+
+
+
 <!--
 **7amok4a/7amok4a** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
