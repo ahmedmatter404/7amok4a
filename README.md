@@ -9,12 +9,12 @@
 
 ----------------------------------------------------------------------------------------------------------------------------------
 
-###I love to learn without a routine or a plan 
+### I love to learn without a routine or a plan 
  
  -----------------------------------------------------------------------------------------------------------------------------------
 
 
-###I take education as a pleasure for the mind and not as a way to work. Therefore, I did not lag behind in computer science.
+### I take education as a pleasure for the mind and not as a way to work. Therefore, I did not lag behind in computer science.
 
 
 ----------------------------------------------------------------------------------------------------------------------------------
