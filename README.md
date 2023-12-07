@@ -30,7 +30,8 @@
 -----------------------------------------------------------------------------------------------------------------------------------
 
 
-![Uploading wallpaperflare.com_wallpaper.jpg…]()
+![wallpaperflare com_wallpaper](https://github.com/7amok4a/7amok4a/assets/123641786/022201c0-0eb3-4984-ab0c-208d3c21739d)
+
 
 
 
