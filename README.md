@@ -1,35 +1,6 @@
-###                                                                                             Hi there 👋 , A7med Mohamed Matter
+###                                                                                             Hi there 👋 , Ahmed Mohamed Matter
 
-                                      
-***
-
-
-### 7amok4a is Lazy Student Studying Computer Science
-
-
-----------------------------------------------------------------------------------------------------------------------------------
-
-### I love to learn without a routine or a plan 
- 
- -----------------------------------------------------------------------------------------------------------------------------------
-
-
-### I take education as a pleasure for the mind and not as a way to work.  
-
-### Therefore, I did not lag behind in computer science.
-
-
-----------------------------------------------------------------------------------------------------------------------------------
-
- 
- ### I love to write a big code and debug it 
-
-
-
------------------------------------------------------------------------------------------------------------------------------------
-
-
-![wallpaperflare com_wallpaper](https://github.com/7amok4a/7amok4a/assets/123641786/022201c0-0eb3-4984-ab0c-208d3c21739d)
+- 
 
 
 
